@@ -4,4 +4,4 @@ hiw kaw laeww
 eat arai
 IDK
 จงเติมคำในช่องว่าง
-ค ว _
+ค ว e
